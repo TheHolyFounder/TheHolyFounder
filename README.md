@@ -1,4 +1,3 @@
-
 <div align="center">
   <img height="200" src="https://i.ibb.co/wF8GTv3Q/tumblr-nweyl93q3-M1txe443o3-1280.png"  />
 </div>
@@ -59,11 +58,5 @@
 ###
 
 <img src="https://raw.githubusercontent.com/TheHolyFounder/TheHolyFounder/output/snake.svg" alt="Snake animation" />
-
-###
-
-<div align="center">
-  <img src="https://github-read-medium-git-main.pahlevikun.vercel.app/latest?limit=4" alt="Layout with last medium posts"  />
-</div>
 
 ###
