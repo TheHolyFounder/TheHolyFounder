@@ -18,7 +18,7 @@
 
 ###
 
-<h4 align="center">Wade (YOU KNOW WHO YOU ARE ‼️)<br><br>Cassius<br><br>Liv<br><br>Gilded Guy<br><br>Nerd (YOU KNOW WHO YOU ARE ‼️)<br><br>Kaz (YOU KNOW WHO YOU ARE ‼️)<br><br>Yanel<br><br>Koolaid ( yup that's right the vitalis hoster)<br><br>I feel like I'm forgetting someone.<br><br><br> YUP that's right I just named a BUNCH of people you the viewer probably doesn't know.</h4>
+<h4 align="center">Wade (YOU KNOW WHO YOU ARE ‼️)<br><br>Cassius<br><br>Liv<br><br>Gilded Guy<br><br>Nerd (YOU KNOW WHO YOU ARE ‼️)<br><br>Kaz (YOU KNOW WHO YOU ARE ‼️)<br><br>Yanel<br><br>Koolaid ( yup that's right the vitalis hoster)<br><br>I feel like I'm forgetting someone.<br><br><br> YUP that's right I just named a BUNCH of people you the viewer probably doesn't know.<br><br> JUST BC UR COOL DOESN'T MEAN IM BUYING YOU ANYTHING‼️ </h4>
 
 ###
 
